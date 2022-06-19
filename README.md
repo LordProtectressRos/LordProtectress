@@ -1,6 +1,6 @@
 Salutations.
 
-I am a lady that goes by many names. Rose, Tahrodiis, Clypeus, Caruana.
+I am a lady that goes by many names. Rose, Lord Protectress, Clypeus.
 Whether or not you use these names is not much concern to me.
 
 I come from Sussex, however my family is Maltese. 
